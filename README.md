@@ -1,4 +1,11 @@
 # khaznna-
-my khaznna  for students use
+this is our website
+
 https://ayushghosh-123.github.io/khaznna-/
-this is the site you use it
+
+
+The above link you can upload yours notes regarding academic and get easy access to it. 
+Enjoy all the STUDENTS
+
+FOR THE STUDENTS
+BY THE STUDENTS
